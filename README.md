@@ -1,2 +1,2 @@
 # Website-
-https://Fwww.jonnyaliblogblogspot.com
+https://sites.google.com/view/fwww-jonnyaliblog-blogspot-com/home/
